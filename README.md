@@ -10,3 +10,7 @@ STEP 6: Go to https://eternity.esctacy/ in Chrome and login using the username "
 STEP 7: ENJOY!!!!
 
 CRACKED WITH LOVE IN MOLDOVA
+
+-----------------------------
+
+PASS: 1234
